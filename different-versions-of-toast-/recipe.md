@@ -1,0 +1,2 @@
+toast the bread in a toaster or oven
+then apply whatever you like eg jam , butter , nutella (you can also aplly 2 coats of different things my advice 1 coat of jam and 1 of butter ) (apply on 1 side )
